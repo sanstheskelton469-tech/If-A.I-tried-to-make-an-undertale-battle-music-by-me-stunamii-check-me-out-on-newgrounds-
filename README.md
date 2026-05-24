@@ -1,1 +1,1 @@
-If Undertale battale was made by ai. thats all (music by me, or stunamiii. check me out on newgrounds!
+If Undertale battale was made by ai. thats all (music by me (stunamiii). check me out on newgrounds!
